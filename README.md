@@ -10,7 +10,7 @@ ${\color{#ffe2bd}Where \space have \space all \space the}$ ${\color{#eb7335} GOO
 <br>
 <br>${\color{#c65d44}➤ }$ ${\color{#8e2018} Rhys}$ ${\color{#ffe2bd}/}$ ${\color{#8e2018}Kerry}$ ${\color{#c65d44}╏}$ ${\color{#8e2018}He}$ ${\color{#ffe2bd}/}$ ${\color{#8e2018}Him}$ ${\color{#c65d44}╏}$ ${\color{#8e2018}Twenty-Two}$
 <br>${\color{#c65d44}➤}$ ${\color{#ffe2bd}Resident}$ ${\color{#eb7335}British}$  ${\color{#ffe2bd}/}$ ${\color{#eb7335}Irish}$ ${\color{#c65d44}lurker}$ ${\color{#ffe2bd}on \space this}$ ${\color{#8e2018}hellsite}$ ${\color{#ffe2bd}.}$
-<br>${\color{#c65d44}➤}$ ${\color{#d7b496}Normally}$ ${\color{#ffe2bd}above}$ ${\color{#800404} docks}$ ${\color{#ffe2bd}.ᐟ}$
+<br>${\color{#c65d44}➤}$ ${\color{#d7b496}Normally}$ ${\color{#ffe2bd}above}$ ${\color{#8e2018} docks}$ ${\color{#ffe2bd}with}$ ${\color{#eb7335}friends}$ ${\color{#ffe2bd}.ᐟ}$
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="400px">
 <br>
