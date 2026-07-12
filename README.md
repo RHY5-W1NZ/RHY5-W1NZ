@@ -17,11 +17,11 @@ ${\color{#ffe2bd}Where \space have \space all \space the}$ ${\color{#eb7335} GOO
 <br>${\color{#eb7335}ECHO-LINKS}$ ${\color{#ffe2bd}.ᐟ}$
   <br> <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#c65d44}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#c65d44}╏}$ <a href="https://eurodynes.straw.page">Strawpage</a> ${\color{#c65d44}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#c65d44}╏}$ <a href="https://eurodyneism.atabook.org">Atabook</a>
 <br>
-<br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="700px">
+<br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="400px">
 <br>
 <br>${\color{#eb7335}HE'S}$ ${\color{#ffe2bd}gotta \space be }$ ${\color{#eb7335}SURE}$ ${\color{#ffe2bd}and}$ ${\color{#eb7335}HE'S}$ ${\color{#ffe2bd}gotta \space be}$ ${\color{#eb7335}SOON}$ ${\color{#ffe2bd}. \space . \space .}$
 <br>${\color{#ffe2bd}and}$ ${\color{#eb7335}HE'S}$ ${\color{#ffe2bd}gotta \space be}$ ${\color{#eb7335}LARGER}$ ${\color{#ffe2bd}than}$ ${\color{#eb7335}LIFE}$ ${\color{#ffe2bd}.ᐟ}$
 <br>
 <br><img src="https://64.media.tumblr.com/feb591b9b715999e6487939cb6b3beba/4f11a9ca2b61893a-78/s1280x1920/67e67dbfb7c8cc479ee58844ddea189d8cd9db80.pnj"width="600px">
 <br>
-<img src="https://i.ibb.co/yF2TwL54/image.png"width="600px">
+<img src="https://i.ibb.co/yF2TwL54/image.png"width="700px">
