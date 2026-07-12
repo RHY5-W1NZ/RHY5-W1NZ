@@ -24,4 +24,4 @@ ${\color{#ffe2bd}Where \space have \space all \space the}$ ${\color{#eb7335} GOO
 <br>
 <br><img src="https://64.media.tumblr.com/feb591b9b715999e6487939cb6b3beba/4f11a9ca2b61893a-78/s1280x1920/67e67dbfb7c8cc479ee58844ddea189d8cd9db80.pnj"width="600px">
 <br>
-<img src="https://i.ibb.co/yF2TwL54/image.png"width="700px">
+<img src="https://i.ibb.co/yF2TwL54/image.png"width="600px">
