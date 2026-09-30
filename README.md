@@ -15,7 +15,7 @@ ${\color{#ffe2bd}Where \space have \space all \space the}$ ${\color{#eb7335} GOO
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="400px">
 <br>
 <br>${\color{#eb7335}ECHO-LINKS}$ ${\color{#ffe2bd}.ᐟ}$
-  <br> <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#c65d44}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#c65d44}╏}$ <a href="https://eurodynes.straw.page">Strawpage</a> ${\color{#c65d44}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#c65d44}╏}$ <a href="https://eurodyneism.atabook.org">Atabook</a>
+  <br> <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#c65d44}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#c65d44}╏}$ <a href="https://rhy5-w1nz.straw.page/">Strawpage</a> ${\color{#c65d44}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#c65d44}╏}$ <a href="https://eurodyneism.atabook.org">Atabook</a>
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="400px">
 <br>
